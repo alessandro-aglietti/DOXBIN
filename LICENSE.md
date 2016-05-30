@@ -1,0 +1,1 @@
+You can do whatever you want with the code, but if you try to launch a clone and you so do in a way that tarnishes my good name, I reserve the right to oven you and everything you've ever cared about.
